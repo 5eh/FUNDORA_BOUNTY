@@ -60,4 +60,3 @@ Please share us your test address so we may issue out $FRNT tokens for testing t
 - Telegram: @Watsonlr OR @yerguide
 - Email: watsonlewrod1@gmail.com OR yerguides01@gmail.com
 - Group Telegram (If you want to join): https://t.me/+Jlk2smB-n5owZWUx
-# FUNDORA_BOUNTY
